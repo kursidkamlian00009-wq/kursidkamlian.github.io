@@ -1,1 +1,0 @@
-# kursidkamlian.github.io
